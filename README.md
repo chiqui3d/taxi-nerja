@@ -4,11 +4,11 @@
 
 ### Comparar y reservar taxis en Nerja
 
-Si quieres reservar un taxi en la capital del Reino Unido, especialmente para los traslados en taxi del aeropuerto de Nerja, los precios del minicabit de Nerja pueden ayudarte a empezar. Utiliza la herramienta de reserva en línea para reservar un taxi desde o hacia Nerja o para encontrar la cotización más barata para los traslados en taxi desde el aeropuerto de Nerja.
+Si quieres reservar un taxi en la capital del España, especialmente para los traslados en taxi del aeropuerto de Nerja, los precios del minicabit de Nerja pueden ayudarte a empezar. Utiliza la herramienta de reserva en línea para reservar un taxi desde o hacia Nerja o para encontrar la cotización más barata para los traslados en taxi desde el aeropuerto de Nerja.
 
 ![Taxi Nerja](https://www.taxi-nerja.com/images/taxi-nerja-faqs.jpg)
 
-Tanto si está de visita en Nerja y desea reservar un taxi desde la estación de tren hasta su hotel, como si necesita coger un taxi desde la ciudad de vuelta a casa o está volando desde Nerja Stanstead, Heathrow, Gatwick o Luton y necesita un servicio de taxi exprés del aeropuerto de Nerja para llegar allí lo antes posible, puede utilizar el minicabit para buscar presupuestos de cientos de proveedores de taxis, lo que le permitirá encontrar la opción más barata posible en la fecha que necesite.
+Tanto si está de visita en Nerja y desea reservar un taxi desde la estación de tren hasta su hotel, como si necesita coger un taxi desde la ciudad de vuelta a casa o está volando desde Nerja Málaga, Heathrow, Gatwick o Luton y necesita un servicio de taxi exprés del aeropuerto de Nerja para llegar allí lo antes posible, puede utilizar el minicabit para buscar presupuestos de cientos de proveedores de taxis, lo que le permitirá encontrar la opción más barata posible en la fecha que necesite.
 
 Para reservar un [taxi de Nerja](https://www.taxi-nerja.com/es/), simplemente introduzca el lugar de recogida y el destino elegido en la herramienta de búsqueda de taxis y le proporcionaremos una lista de presupuestos de las compañías de taxis de Nerja, lo que le permitirá hacer su elección en función del precio, el respeto al medio ambiente o el tipo de coche. Puedes reservar un taxi de hasta 8 plazas para ir al aeropuerto de Nerja o para ir y volver de la ciudad, lo que lo convierte en la elección perfecta de transporte si viajas en grupo. De hecho, a menudo resulta más barato que pagar los billetes de transporte público individuales, y obtienes un coche privado para ti solo; ya no tienes que pararte en el autobús o pelear por los asientos en el tren.
 
