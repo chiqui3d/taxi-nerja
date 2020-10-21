@@ -23,7 +23,7 @@ Cuando se planea un viaje, se organizan viajes de negocios o simplemente se va d
 
 Para reservar un taxi de Nerja, simplemente háganos saber de dónde va y de dónde viene, le encontraremos los mejores precios de taxi de Nerja disponibles. ¿Viajando solo o en grupo? ¿Necesita reservar un taxi de regreso, o sólo un servicio de taxi cerca de usted? Sean cuales sean sus necesidades específicas, el minicabit le asegura que obtendrá las tarifas de taxi de Nerja que se ajusten a sus necesidades. Una vez que encuentre un presupuesto de taxi barato de minicabit con el que esté contento, puede hacer su reserva hoy mismo.
 
-![taxi en Nerja] (https://www.taxi-nerja.com/images/call-to-taxi-in-nerja-slide-tiny.jpg)
+![taxi en Nerja](https://www.taxi-nerja.com/images/call-to-taxi-in-nerja-slide-tiny.jpg)
 
 ### Obtener un presupuesto de taxi
 
