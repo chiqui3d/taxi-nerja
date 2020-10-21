@@ -27,4 +27,5 @@ Para reservar un taxi de Nerja, simplemente háganos saber de dónde va y de dó
 
 ### Obtener un presupuesto de taxi
 
-¿Necesita un taxi de Nerja a Heathrow? Nuestro servicio de traslado al aeropuerto también le ofrece opciones para ir de Gatwick a Nerja, entre otros aeropuertos. Si buscas un taxi a Nerja desde una parte más remota del país, podemos encontrar un servicio de taxi local cerca de ti que puedes reservar en línea con facilidad.
+¿Necesita un taxi de Nerja a Málaga? Nuestro servicio de traslado al aeropuerto también le ofrece opciones para ir de Aeropuerto de Málaga-Costa del Sol
+ a Nerja, entre otros aeropuertos. Si buscas un taxi a Nerja desde una parte más remota del país, podemos encontrar un servicio de taxi local cerca de ti que puedes reservar en línea con facilidad.
