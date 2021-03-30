@@ -6,7 +6,7 @@
 
 Si quieres reservar un taxi en la capital del España, especialmente para los traslados en taxi del aeropuerto de Nerja, los precios del minicabit de Nerja pueden ayudarte a empezar. Utiliza la herramienta de reserva en línea para reservar un taxi desde o hacia Nerja o para encontrar la cotización más barata para los traslados en taxi desde el aeropuerto de Nerja.
 
-![Taxi Nerja](https://www.taxi-nerja.com/images/taxi-nerja-faqs.jpg)
+![Taxi Nerja](https://www.taxiairporttonerja.com/themes/jaimetours/assets/images/taxi-nerja-faqs.jpg)
 
 Tanto si está de visita en Nerja y desea reservar un taxi desde la estación de tren hasta su hotel, como si necesita coger un taxi desde la ciudad de vuelta a casa o está volando desde Nerja Málaga, Heathrow, Gatwick o Luton y necesita un servicio de taxi exprés del aeropuerto de Nerja para llegar allí lo antes posible, puede utilizar el minicabit para buscar presupuestos de cientos de proveedores de taxis, lo que le permitirá encontrar la opción más barata posible en la fecha que necesite.
 
